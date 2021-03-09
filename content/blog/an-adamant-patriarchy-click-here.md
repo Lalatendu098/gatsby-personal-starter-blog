@@ -15,3 +15,5 @@ I can remember a recent statement by an honorable SC judge , saying “How can y
 Finally to conclude let me elucidate certain things. Everyone tries to get some attention as a hero. Be a hero as Jyotirao Phule .You can certainly be a hero to your daughter, to your mother, to your wife,to your friend and indeed to yourself. A true man never disrespects a women. 
 
 { A very small article, keeping your patience in mind. Actually issues against women cann't be described at a single go. One thing - lets change the frame of our glasses and make the world a better place.}
+
+Thank you readers.
